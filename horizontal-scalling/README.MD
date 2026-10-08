@@ -1,0 +1,10 @@
+# HORIZONTAL SCALLING
+
+### HOW ITS WORK
+- 
+
+### WHERE TO USE AND HOW TO...!
+-
+
+### HOW TO DO THIS...!!
+-
